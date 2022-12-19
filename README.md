@@ -46,6 +46,6 @@ I own my own small business, Uglesoft LLC, which offers website creation and hos
 
 ## Contact Me
 
-Feel free to check out my entire website at https://kwoe.uglesoft.com/, connect with me on LinkedIn at https://www.linkedin.com/in/christian-kesler/, or join my website's Discord server https://discord.com/invite/ezHmjgf7d6.  
+Feel free to check out my entire website at https://christian-j-kesler.com/ or connect with me on LinkedIn at https://www.linkedin.com/in/christian-kesler/.  
 I look forward to hearing from you.  
 
